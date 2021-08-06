@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @cantaloupebabey
+- 👀 I’m interested in art, science, and the world!
+- 🌱 I’m currently learning Python, oil painting, and management! 
